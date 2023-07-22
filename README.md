@@ -17,7 +17,7 @@
 
 <br>
 
-- Cada dia busco algo nuevo que aprender
+- Futuro ingeniero
 - aprendiz veloz
 - Loco por la tecnogologia
 - pagina personal [link](https://www.facebook.com/darioalberto.moncadapineda.1)
